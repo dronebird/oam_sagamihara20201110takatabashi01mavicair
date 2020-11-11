@@ -1,0 +1,2 @@
+# oam_sagamihara20201110takatabashi01mavicair
+2020年11月10日 相模原市高田橋訓練 空撮データ
